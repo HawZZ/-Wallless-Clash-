@@ -1,6 +1,6 @@
 # Wallless机场最新官网地址入口
 
-Wallless机场最新地址：[Walless机场注册]{https://www.wlsite8.com/#/register?code=sxRYeSFi)
+Wallless机场最新地址：[wlsite8.com](https://www.wlsite8.com/#/register?code=sxRYeSFi)
 
 ## 简介
 
